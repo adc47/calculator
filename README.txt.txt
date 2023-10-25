@@ -1,1 +1,0 @@
-martina par a ualler
