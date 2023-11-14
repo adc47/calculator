@@ -1,1 +1,0 @@
-scemo chi legge
